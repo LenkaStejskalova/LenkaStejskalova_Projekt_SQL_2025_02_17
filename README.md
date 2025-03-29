@@ -1,0 +1,1 @@
+# LenkaStejskalova_Projekt_SQL_2025_02_17
